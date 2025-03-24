@@ -1,4 +1,4 @@
-# [dubovek.com](https://dubovek.github.io/Resume/)
+# [dubovek.com](https://dubovek.com)
 
 ## 👋 Hi there  
 ### Shortly, Its me about me.  
