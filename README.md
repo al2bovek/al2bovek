@@ -14,6 +14,9 @@ Sometimes very proud, and it is difficult to let down, so I often seem stubborn.
 This makes me sometimes sarcastic, sometimes repulsive.  
 However, you can't deny me just because of that.  
 ![1965 december](https://github.com/user-attachments/assets/cca89540-7b9e-47ac-86d0-80aee29ae6a3)
+## Contributing  
+Welcome! Happy to see you here. You can   by reading this:  [dubovek.com](https://dubovek.com)  
+I would love your attention!  
 **Have a nice day.**   
 
 <!--
